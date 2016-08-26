@@ -1,0 +1,9 @@
+# The family
+
+Scott is the son that every parents in the suburbs wished they had. Scott is the middle son. He has one elder sister and one younger brother. The elder sister is two years older than him, and lives in Adelaide with her family. It is a typical nuclear family with two children of her own. His brother is one year younger than him. He is studying at the Royal Melbourne Institute of Technology, currently at his second year. His result is steady without being spectacular. 
+
+Scott has just completed is tertiary education and graduated towards the top of his class. He has worked hard during his studies and achieved similar results as his younger brother. Scott is also steady but he excels at software engineering. During the four years of studies, he tried to avoid the regular parties and sessions at the local drinking hotel so that he can concentrate on his studies. He geuninely enjoy his studies and would put alot of effort to make sure he gets the best result as he can. Scott also studies at the Royal Melbourne Institute of Technology. 
+
+On most days, he would see his younger brother on campus and have a chat with him. This is one of the only way Scott sees his younger brother regularly. Scott lives in a shared bulding about two blocks away in Swanston Street, and his younger brother still lives at home with mum and dad.
+ 
+David is the father. He has worked all his life as a local business man. He ran the local advertising shop, actually he is the owner of the business. He  helped business in the area to prosper. As a result, his business would also prosper. He just recently retired after at the business for about five decades. For his business, he 
